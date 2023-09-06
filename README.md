@@ -1,2 +1,1 @@
-# aka
-Anti Karen Associations
+# Anti Karen Associations
